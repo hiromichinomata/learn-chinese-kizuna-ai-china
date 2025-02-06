@@ -1,3 +1,3 @@
-# Learn Chinese with Kizuna Ai China
+# Learn Chinese with Kizuna AI China
 
 中国绊爱Kizuna AI Chinaと学ぶ中国語
